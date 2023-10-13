@@ -15,8 +15,9 @@
 
 <br>
 
-- I am Back-end developer
-- I’m currently open a new job opportunity, here is [my resume](https://hh.ru/resume/1597d81aff0c09ee2f0039ed1f3846774a4564)
+- I'm Back-end developer
+- PhD in Optics
+- Currently open a new job opportunity, here is [my resume](https://hh.ru/resume/1597d81aff0c09ee2f0039ed1f3846774a4564)
 
 <br><br>
 
