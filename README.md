@@ -18,7 +18,7 @@
 - I'm Back-end developer
 - 1 year and 2 months in developing
 - PhD in Optics
-- I’m currently open for a new job opportunity, here is [my resume](https://hh.ru/resume/1597d81aff0c09ee2f0039ed1f3846774a4564)
+- I’m currently open for a new job opportunity
 
 <br><br>
 
