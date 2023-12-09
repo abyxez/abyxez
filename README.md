@@ -18,7 +18,7 @@
 - I'm Back-end developer
 - 1 year 4 months in developing
 - PhD in Optics
-- I’ve appliedfor a job, waiting for a conclusion
+- I’ve applied for a job, waiting for a conclusion
 
 <br><br>
 
