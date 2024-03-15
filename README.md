@@ -16,7 +16,7 @@
 <br>
 
 - I'm Back-end developer
-- 1 year 6 months in developing
+- 1 year 7 months in developing
 - PhD in Optics
 - I’m currently open for job offers
 
